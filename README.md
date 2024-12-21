@@ -4,5 +4,5 @@ This is my first rice, not going for anything complicated, took ~2.25H
 
 Clean, Sharp, very girlypop
 
-I started this just for the thigh highs but now I actually like arch lol
+I started this just for the thigh highs but now I actually like this lol
 
